@@ -1,5 +1,7 @@
 ### Hi there 👋
-
+- 🌴 I’m on a looooong vocation
+- 😎 But I'm currently working on something cool
+- 🤟 So just stay tuned
 <!--
 **bensgith/bensgith** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
